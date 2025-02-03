@@ -3,4 +3,6 @@
 ---
 
 
-![banner-endce.png](/img/user/images/banner-endce.png)
+
+# EndCE
+### Our modern tech & world is enabling mass child exploitation, and we have to do something about it.
