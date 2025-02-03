@@ -7,7 +7,7 @@
 
 ![alessio-soggetti-xXIRSZmzvU8-unsplash.jpg](/img/user/images/alessio-soggetti-xXIRSZmzvU8-unsplash.jpg)
 
-## [[For Parents - Guardians - Those Taking Responsibility \|Information for Parents/Guardians/Responsible Adults 👪️]] 
+## [[For Parents - Guardians - Those Taking Responsibility \|Information for Parents/Guardians/Responsible Adults 🫂]] 
 
 ## [[Online Safety Tools \|Staying Safe Online 🛑]] 
 
