@@ -7,9 +7,9 @@
 
 ![joel-holland-TRhGEGdw-YY-unsplash.jpg](/img/user/images/joel-holland-TRhGEGdw-YY-unsplash.jpg) 
 
-## [[For Parents - Guardians - Those Taking Responsibility \|Information for Parents/Guardians/Responsible Adults 🫂]] 
+## [[Resources/For Parents - Guardians - Those Taking Responsibility\|Information for Parents/Guardians/Responsible Adults 🫂]] 
 
-## [[Online Safety Tools \|Staying Safe Online 🛑]] 
+## [[Resources/Online Safety Tools\|Staying Safe Online 🛑]] 
 
-## [[What We Do \|About Us 🪴]] 
+## [[About Us/What We Do\|About Us 🪴]] 
 
