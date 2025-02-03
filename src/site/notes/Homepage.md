@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/homepage/","tags":["gardenEntry"]}
 ---
 
-# It's time to End Child Exploitation 🌺
+# It's Time To End Child Exploitation 🌺
 ### Our modern world is enabling mass child exploitation, and we have to do something about it.
 
 ![joel-holland-TRhGEGdw-YY-unsplash.jpg](/img/user/images/joel-holland-TRhGEGdw-YY-unsplash.jpg) 
