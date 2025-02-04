@@ -20,6 +20,7 @@ We are a small internet group focused on stopping child exploitation with fun a
 
 > We need you if you care at all about this. I want you to be a part of this project when we make headlines. We have to change the world, we will, and we are. Please, be a part of this if you have some time to waste. There is hope.
 
+___
 ### How We Do It
 
 Finding people online who are wasting time, or who have skills, and asking them to help us, and build their own skill set along the way. (We might have done this with you hopefully)
