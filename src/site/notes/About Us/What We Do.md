@@ -71,3 +71,5 @@ If they choose to help us directly, they will be asked to pick a core task of im
 Then, they leave after contributing time, hopefully having developed a new skill, contributed to stopping exploitation, and feeling fulfilled.
 
 People of all kinds join our project, and can contribute resources and information that has helped them to our [resource collection](https://docs.google.com/document/d/1CCpQcEDN4LpNK6ITnIlqadyR673-eKCbEWiBRfKQB4A/edit?usp=sharing), then, we hopefully help and encourage more people.
+
+[[About Us/What We Do\|Scroll To Top]]  
