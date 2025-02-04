@@ -14,4 +14,4 @@
 - *[GrapheneOS](https://grapheneos.org/)* - A custom OS for **Google Pixel smartphones** that "de-googles" the device. 
 - *[LineageOS](https://lineageos.org/)* - A custom OS for most **modern smartphones** that "de-googles" the device.
 
-#### [[Resources/For Parents - Guardians - Those Taking Responsibility\|Resources for Parents 👪️]] ~ [[Resources/Mental Health Tools for Everyone\|Mental Health Tools 🏞️]] ~ [[Resources/Handling and Reporting Child Abuse Online\|Reporting Child Abuse Online 🛑]] 
+###### [[Resources/For Parents - Guardians - Those Taking Responsibility\|Resources for Parents 👪️]] ~ [[Resources/Mental Health Tools for Everyone\|Mental Health Tools 🏞️]] ~ [[Resources/Handling and Reporting Child Abuse Online\|Reporting Child Abuse Online 🛑]] 
