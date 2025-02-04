@@ -26,8 +26,6 @@ ___
 Finding people online who are wasting time, or who have skills, and asking them to help us, and build their own skill set along the way. (We might have done this with you hopefully)
 
 Then, we try to create something so incredibly beautiful and helpful - So good that it gets shared and is posted everywhere. Through providing links to other amazing and helpful sites, helping survivors of abuse and addiction, giving kindness (even giving some resources to people who have paedophilic thoughts, assuming they have a chance of being human too), building community, and building skills for everyone.
-
-Promoting freedom.
 ### Unique Systems
 
 The world, and especially these problems are so complex - and we focus on understanding the problem deeply, knowing why things happen, and how they happen, and take simple and achievable steps towards solving the problems on personal, and local levels. - encouraging people who have been affected by this to safely share their stories and share their thoughts for fighting this.
