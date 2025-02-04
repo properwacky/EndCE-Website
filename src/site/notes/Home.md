@@ -5,11 +5,10 @@
 # It's Time To End Child Exploitation 🌺
 ### Our modern world is enabling mass child exploitation, and we have to do something about it.
 
-![joel-holland-TRhGEGdw-YY-unsplash.jpg](/img/user/images/joel-holland-TRhGEGdw-YY-unsplash.jpg) 
+---
+## The Project 🎯
 
-## [[Resources/For Parents - Guardians - Those Taking Responsibility\|Information for Parents/Guardians/Responsible Adults]] 
-
-## [[Resources/Online Safety Tools\|Staying Safe Online]] 
-
-## [[About Us/What We Do\|About Us]] 
+#### [[About Us/What We Do\|What We Do]] 
+#### [[Resources/Online Safety Tools\|Online Safety Tools]]
+#### [[Want To Volunteer or Just Chat?/Contact Us\|Contact Us]] 
 
