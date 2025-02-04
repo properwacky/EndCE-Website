@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/resources/for-parents-guardians-those-taking-responsibility/"}
 ---
 
-# For Parents - Guardians - Those Taking Responsibility
+# For Parents - Guardians - Those Taking Responsibility 👪️
 
 There are so many things you can do to make things better. We're putting together a [document with solutions and ideas](https://docs.google.com/document/d/1dyUqccIRYcNA5nHFql1QAvSDd4M3KfkKqwI1pPiSiDw/edit?usp=sharing). Please be part of that, as well as look through these resources below.
 

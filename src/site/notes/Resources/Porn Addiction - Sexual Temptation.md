@@ -7,6 +7,7 @@
 ## Pornography addiction is the gateway into escalated genres. Find your freedom with one of the free resources below ⬇️
 
 - *[The Easy Peasy Method To Quit Porn](https://easypeasymethod.org/)* - The most popular book focusing on escaping from pornography addiction without use of willpower-based methods. **NoFap doesn't work, it's time for a new way.**
+- *[The Flying Eagle Method](https://flying-eagle-method.org/)* - A no-willpower method of escaping porn-addiction.
 
 ## Paedophilia 
 
