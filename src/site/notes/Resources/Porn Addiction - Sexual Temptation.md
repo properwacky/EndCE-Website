@@ -13,7 +13,7 @@
 
 - *[Find a therapist](https://www.psychologytoday.com/)*
 - *[ASAP](https://asapinternational.org/)*
-## Video Content
+## Video Content 
 
 - *[How a Priest Treats Lust Addiction](https://www.youtube.com/watch?v=qoT4O9-_-cE)*
 - *[What masculinity really is](https://www.youtube.com/watch?v=5fhAJKQ1UYE)*
