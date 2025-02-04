@@ -4,19 +4,19 @@
 
 # Mental Health Tools for Everyone 🏞️
 
-## Helplines and Personal Resources ☎️
+## Helplines and Personal Resources 
 
 - *[Find a helpline](https://findahelpline.com/)* - Immediate professional support
 - *[Mental Freedom Checklist]()* CREATE
-## Reading Material 📖
+## Reading Material 
 
 - *[The Power of Now](https://mega.nz/folder/wocxDb4R#PcNbRQnDScF7GOX0Gc70IQ)* - Addressing limitations within our mind.
 - *[The Easy Peasy Method To Quit Porn](https://easypeasymethod.org/)* - A book focusing on escaping from pornography addiction without using willpower-based methods.
-## Articles Focusing on PTSD 🧠
+## Articles Focusing on PTSD 
 
 - *[PTSD Treatment Program in New Hampshire](https://www.graniterecoverycenters.com/treatment-program/mental-health/ptsd/)* 
 - *[How trauma affects the brain](https://definingwellness.com/resources/how-trauma-affects-the-brain/)* 
-## YouTube videos on Depersonalization/Disassociation 😵‍💫
+## YouTube videos on Depersonalization/Disassociation 
 
 - *[Depersonalization Manual](https://www.youtube.com/@Dpmanual/videos)*
 - *[Depersonalization vs Derealization](https://www.youtube.com/watch?v=_1GCjggflEU)* 

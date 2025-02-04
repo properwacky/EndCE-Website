@@ -8,7 +8,7 @@ There are so many things you can do to make things better. We're putting togethe
 
 It's all about being conscious, mindful, healthy, and understanding how our tech should be used, and how it can be exploited. 🌳
 
-## Educational Resources for Parents 📚️
+## Educational Resources for Parents 
 
 - *[Screen Time Network](https://screentimenetwork.org/)* - A website focusing on reducing screen time on devices like smartphones and computers.
 - *[Safe Online](https://safeonline.global/what-we-do-overview/)* - Helping kids access the internet safely through education.
@@ -18,12 +18,12 @@ It's all about being conscious, mindful, healthy, and understanding how our tech
 - *[Qustodio - Parental Control](https://www.qustodio.com/)* - An application providing parental controls to manage and monitor their kid's device usage. 
 - *[Defend Young Minds](https://www.defendyoungminds.com/)* - A website focusing on educating kids on using the internet safely.
 - *[Wait Until 8th](https://www.waituntil8th.org/)* - A website focusing on letting kids be kids for longer through delayed internet usage.
-## Educational Resources for Kids 📚️
+## Educational Resources for Kids 
 
 - *[Organized Home Schooler](https://www.organizedhomeschooler.com/online-homeschool-classes/)* - A website hosting a list of homeschooling programs.
 - *[PBS Kids](https://pbskids.org/learn/)* - Resources for parents and kids.
 - *[Home Life Academy](https://homelifeacademy.com/)* - A homeschooling program.
-## Extra Resources & Information 💡
+## Extra Resources & Information 
 
 ### Discord Safety
 

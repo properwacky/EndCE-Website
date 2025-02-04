@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/resources/porn-addiction-sexual-temptation/"}
 ---
 
-# Porn Addiction - Sexual Temptation 🤕
+# Porn Addiction - Sexual Temptation 💔
 
 ## Pornography addiction is the gateway into escalated genres. Find your freedom with one of the free resources below ⬇️
 
