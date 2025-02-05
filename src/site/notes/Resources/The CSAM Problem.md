@@ -21,6 +21,8 @@ We are fighting against letting children use the internet without full supervi
 - 📰 *[AI Generated CP](https://www.wired.com/story/generative-ai-images-child-sexual-abuse/)*
 - 📰 *[Deepfake porn](https://www.dazeddigital.com/science-tech/article/55926/1/inside-the-disturbing-rise-of-deepfake-porn)*
 - 📹 *[The internet has a CP problem](https://youtu.be/6g9B8oBjf14)*
+
+---
 ## Point of No Return 🛑
 
 ### The content going forward is disgusting proof of the dangers. No actual CP is shown.
