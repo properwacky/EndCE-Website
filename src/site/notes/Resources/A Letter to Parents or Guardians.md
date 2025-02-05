@@ -18,4 +18,4 @@ We have to fight this as a community.
 
 Thank you for taking the time to read this. You are a caring person that truly cares for safety of children on the internet. It takes one person to change the world.
 
-with love from the EndCE Team
+with love from the EndCE Team x

@@ -12,7 +12,7 @@
 
 #### [[About Us/What We Do\|What We Do]] 
 #### [[Resources/Online Safety Tools\|Online Safety Tools]]
-#### [[Want To Volunteer or Just Chat?/Contact Us\|Contact Us]] 
+#### [[Want To Volunteer or Just Chat_/Contact Us\|Contact Us]] 
 
 ---
 ## In Short

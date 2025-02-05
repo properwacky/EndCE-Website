@@ -13,4 +13,4 @@
 - *[The Easy Peasy Method To Quit Porn](https://easypeasymethod.org/)* - The most popular book focusing on escaping from pornography addiction without use of willpower-based methods. **NoFap doesn't work, it's time for a new way.**
 ## Want To Add Your Own Creations? 🌺
 
-> Get in [[Want To Volunteer or Just Chat?/Contact Us\|contact with us]] and we will add it!
+> Get in [[Want To Volunteer or Just Chat_/Contact Us\|contact with us]] and we will add it!

@@ -26,4 +26,4 @@
 
 ---
 
-> *You truly truly aren't alone. Please continue being alive. Thank you for existing. Please continue searching to be a better and healthier person. And you can [[Want To Volunteer or Just Chat?/Contact Us\|reach out]] to me if you just need someone, or need to share your story.* - Evalyne
+> *You truly truly aren't alone. Please continue being alive. Thank you for existing. Please continue searching to be a better and healthier person. And you can [[Want To Volunteer or Just Chat_/Contact Us\|reach out]] to me if you just need someone, or need to share your story.* - Evalyne
