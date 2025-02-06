@@ -51,4 +51,4 @@ We are fighting against letting children use the internet without full supervi
 
 Parents, you have seen the evil for yourself. Please never give children internet access without 100% supervision. If they are a little bit older, the hard conversation may be worth it to avoid years of trauma. Thank you for taking perhaps the most important step in ending child sexual abuse. And, what if we try to make a list of things we can give our kids to do instead of internet? Like a camera for photos, or a music player - anything that encourages good habits
 
-> If this has touched a nerve, you could help stop this. You can [[Want To Volunteer or Just Chat_/Contact Us\|volunteer]] with us and get support to fight against easy-access CP.
+> If this has touched a nerve, you could help stop this. You can [[Want To Volunteer or Just Chat_/Contact Us\|volunteer]] with us and get support to fight against CE.
