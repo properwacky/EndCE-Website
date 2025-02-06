@@ -6,7 +6,7 @@
 
 >Name: Evan/Evels/Evalyne
 >Age: 20
->True America 🇺🇸
+>True American 🇺🇸
 
 Basically... I just have some strict and 'no nonsense' beliefs about stuff. I believe that parents have absolutely no excuse to let their children be exploited online. Maybe handing a toddler a phone when you don't want to parent them is kind of... cringe? Maybe I'm just cringe. Wow, it's so weird being my truly sperggy authentic self on this formal-ish website.
 
