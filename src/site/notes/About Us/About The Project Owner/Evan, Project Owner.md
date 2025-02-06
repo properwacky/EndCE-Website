@@ -36,9 +36,9 @@ But I don't think any of that tells the full story of what my name means. My nam
 
 ## Life Updates
 
-- [[Sick Letter\|This is a sick letter regarding the struggles I've been experiencing (May 2024)]] 
-- [[Dear People Who Care About What I Have To Say\|I made a letter which address people who may care (Jan 2025)]]
-- [[February Letter\|I wrote this letter about what's going on with me & the project (Feb 2025)]]
+- [[About Us/About The Project Owner/Letters by Evan/Sick Letter\|This is a sick letter regarding the struggles I've been experiencing (May 2024)]] 
+- [[About Us/About The Project Owner/Letters by Evan/Dear People Who Care About What I Have To Say\|I made a letter which address people who may care (Jan 2025)]]
+- [[About Us/About The Project Owner/Letters by Evan/February Letter\|I wrote this letter about what's going on with me & the project (Feb 2025)]]
 
 > I'll have an informal newsletter if you want to keep updated with me and how I am dealing with stuff. Just [[Want To Volunteer or Just Chat_/Contact Us\|send your email]] and let me know you want to get email letters. 
 

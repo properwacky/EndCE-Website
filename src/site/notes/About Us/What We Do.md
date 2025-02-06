@@ -6,7 +6,7 @@
 
 ## Our modern world is enabling mass child exploitation, and we have to do something about it.
 
-You're indirectly or directly affected by it (possibly even traumatized from it) - everyday, tons of people [send and sell CSAM] while exploiting countless kids with no consequences, with [CSAM](https://www.missingkids.org/theissues/csam), and all kinds of [CE](https://safeguarding.network/content/safeguarding-resources/child-criminal-exploitation/) being enabled and normalized.
+You're indirectly or directly affected by it (possibly even traumatized from it) - everyday, tons of people [[Resources/The CSAM Problem\|send and sell CSAM]] while exploiting countless kids with no consequences, with [CSAM](https://www.missingkids.org/theissues/csam), and all kinds of [CE](https://safeguarding.network/content/safeguarding-resources/child-criminal-exploitation/) being enabled and normalized.
 
 Horrible, right? Don't worry, it's only solutions from now on. Let's do something about this together.
 
