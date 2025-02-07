@@ -4,7 +4,7 @@
 
 # Why it's important to escape 🏕️
 
-> by [[About Us/About The Project Owner/Evan, Project Owner\|Evan, Project Owner]] 
+> by [[Evan, Project Owner\|Evan, Project Owner]] 
 
 Simply... We should do anything it takes to create an environment that is as safe as possible for people, mentally and physically even if it means changing EVERYTHING. 
 
