@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/about-us/what-we-do/"}
 ---
 
+![bannerforendce.png](/img/user/images/bannerforendce.png)
 # What We Do 🌍️
 
 ## Our modern world is enabling mass child exploitation, and we have to do something about it.
