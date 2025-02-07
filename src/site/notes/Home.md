@@ -2,8 +2,7 @@
 {"dg-publish":true,"permalink":"/home/","tags":["gardenEntry"]}
 ---
 
-
-
+![bannerforendce.png](/img/user/images/bannerforendce.png)
 # It's Time To End Child Exploitation 🌺
 ### Our modern world is enabling mass child exploitation, and we have to do something about it.
 
