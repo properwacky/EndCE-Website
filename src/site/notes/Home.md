@@ -5,7 +5,7 @@
 
 
 # It's Time To End Child Exploitation 🌺
-### Our modern world is enabling mass child exploitation, and we have to do something about it. woah there!
+### Our modern world is enabling mass child exploitation, and we have to do something about it.
 
 ---
 ## The Project
