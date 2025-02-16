@@ -6,6 +6,7 @@
 
 > *I lead the project and am most involved, so my contact information is first. I check email and discord the most.* - Evalyne
 
+
 - Owner's email: evelsxd@proton.me
 - Discord ID: bakedhazlenut
 - Phone Number: +1 970 831 9639

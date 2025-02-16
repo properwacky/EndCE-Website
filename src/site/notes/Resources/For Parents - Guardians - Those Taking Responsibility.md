@@ -4,7 +4,7 @@
 
 # For Parents - Guardians - Those Taking Responsibility 👪️
 
-> Hello lovely parents or guardians, please have a look at this [[Resources/A Letter to Parents or Guardians\|letter]] we wrote especially for you.
+Hello lovely parents or guardians, please have a look at this [[Resources/A Letter to Parents or Guardians\|letter]] we wrote especially for you.
 
 There are so many things you can do to make things better. We're putting together a [document with solutions and ideas](https://docs.google.com/document/d/1dyUqccIRYcNA5nHFql1QAvSDd4M3KfkKqwI1pPiSiDw/edit?usp=sharing). Please be part of that, as well as look through these resources below.
 
